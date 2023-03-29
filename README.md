@@ -1,1 +1,1 @@
-Creating AI is a bad idea and we should probably stop. 
+Creating AI is a bad idea and we should stop. 
