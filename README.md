@@ -1,1 +1,1 @@
-Creating AI is a bad idea and we should stop. 
+GitHub is trying really hard to be a social media site. 
