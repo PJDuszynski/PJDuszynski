@@ -1,1 +1,1 @@
-GitHub is trying really hard to be a social media site. 
+Welcome. I hope you have a wonderful day!
